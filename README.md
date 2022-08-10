@@ -1,1 +1,1 @@
-[博客主页](http//brb.github.io)
+[博客主页](http://www.bairubing.cn)
